@@ -1,0 +1,1 @@
+# Capture Projects Carousel Assets
